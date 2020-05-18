@@ -117,7 +117,7 @@ Modeled on Vinay Gupta's idea that Dubai could become a *future port*, where ide
 
 # Article 3: We are a Future for Our World and Humanity.
 
-We will prevent perpetual war by empowering a world of voluntary nations to compete for Citizens by offering more and better governance services. Violence has been the inevitable outocme of attempting to impose a one-size-fits-all governance model through the use of force. We are creating precedents for a beautiful universe of where millions of entities bloom, one for each and every lack and desire.
+We will prevent perpetual war by empowering a world of voluntary nations to compete for Citizens by offering more and better governance services. Violence has been the inevitable outcome of attempting to impose a one-size-fits-all governance model through the use of force. We are creating precedents for a beautiful universe of where millions of entities bloom, one for each and every lack and desire.
 
 State Sovereignty is no longer compatible with our ever more interconnected lives. Governance 1.0 is more often than not the source of grievances, conflicts and war. Increasingly the Nation State oligopoly represents a global geographical apartheid. Ethics aside, State Sovereignty is also impractical. It both fails to adequately address our local needs and our global challenges.  So far the only alternative to State Sovereignty that has been actively explored is multilateral governance, where Nation States pool their sovereignty to minimise competition through institutions such as the United Nations and European Union.  But this model reduces rather than enhances Citizen sovereignty, and therefore the choices they can make about the governance services they receive.
 
